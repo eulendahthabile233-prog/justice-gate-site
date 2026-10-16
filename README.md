@@ -1,2 +1,1 @@
-# justice-gate-site
-Official website for The Justice Gate Foundation NPO.
+# "The Justice Gate Foundation NPO is a prophetic and legislative vehicle building firm foundations for justice, healing, and community transformation ahead of our formal 100% Digital Public Launch on 12 July 2027." 
